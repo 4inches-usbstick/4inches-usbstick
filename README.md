@@ -5,4 +5,4 @@
 **Pronouns:** he/him, them/they\
 **Working on:** something stupid don't ask\
 **Employment:** student, professional dumbass\
-**Location:** Washington, D.C.
+**Location:** Fairfax
