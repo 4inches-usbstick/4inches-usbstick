@@ -1,1 +1,1 @@
-Charles | all pronouns | full card here https://cbe.fr.to/card | before you ask, I don't have a front facing website. I do have a website that runs a number of services but it doesn't take on traffic from everyone | PLEASE KNOW I MADE THIS ACCOUNT IN MIDDLE SCHOOL DON'T JUDGE OK
+i made this account in middle school
